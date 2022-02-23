@@ -12,3 +12,7 @@
 
 - Hands on with Free Tier account
 
+- Digital Cloud
+
+- udemy 
+
